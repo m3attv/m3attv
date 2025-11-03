@@ -1,10 +1,8 @@
 <div align="center">
 <br><br>
 <img src="https://github.com/user-attachments/assets/6be52568-0ff2-4b09-a5ce-bd80dd5ff97b" />
-
-
 <pre>
-  c&h always encouraged!! <3
+  c&h is always encouraged!! <3
     online status meaning:
 💬 online, INT
 🌙 offtab, whisper to interact
